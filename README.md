@@ -2,7 +2,7 @@ NEW88 | Nhà Cái Uy Tín Hàng Đầu | Link Vào New 88
 
 Những năm vừa qua, chơi cá cược trực tuyến đã càng ngày càng trở thành rộng rãi. ko chỉ tiện lợi đăng ký, đặt cược, người chơi còn được hưởng số đông các lợi quyền mà hình thức chơi cá độ truyền thống sở hữu được.
 
-Cũng chính vì những điều này mà hàng loạt nhà chiếc mọc lên như nấm, 1 trong số đó phải nhắc tới Nhà cái <a href="https://new88.dev/">88n ew</a>, là 1 phần của tập đoàn lớn và uy tín lâu năm trong nghề nên các thành viên hoàn toàn mang thể yên ổn tâm về vấn đề tiền bạc lúc tiến hành giao dịch tại nhà cái.
+Cũng chính vì những điều này mà hàng loạt nhà chiếc mọc lên như nấm, 1 trong số đó phải nhắc tới Nhà cái <a href="https://new88.dev/">88 new</a>, là 1 phần của tập đoàn lớn và uy tín lâu năm trong nghề nên các thành viên hoàn toàn mang thể yên ổn tâm về vấn đề tiền bạc lúc tiến hành giao dịch tại nhà cái.
 
 <b>Giới thiệu tổng quan về New88</b>
 
